@@ -1,3 +1,3 @@
 - 3+ years web developer & WordPress "professional" 🧙‍♂️
 - No such thing as too much coffee ☕
-- Star Wars nerd
+- Star Wars nerd 🌌
